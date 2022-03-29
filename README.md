@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @maverickw5
+- 👀 I’m interested in anything coding
+- 🌱 I’m currently learning computer science
+- 📫 How to reach me: email me @maverickwoentono5@gmail.com
